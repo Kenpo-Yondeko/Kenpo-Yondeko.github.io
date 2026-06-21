@@ -1,1 +1,0 @@
-# Kenpo-Yondeko.github.io
